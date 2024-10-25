@@ -1,1 +1,0 @@
-# aroeiraog05td
